@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThominGoD
+- 👀 I’m interested in Design Web
+- 🌱 I’m currently learning Front
+- 💞️ I’m looking to collaborate on Design
+- 📫 How to reach me thomas.marilleau@mmibordeaux.com
